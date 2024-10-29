@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Android development**
 
-- 👨‍💻 All of my projects are available at [lalitsharma.framer.website](lalitsharma.framer.website)
+- 👨‍💻 Also check my Portflio available at [My Portflio](https://lalitsharma.framer.website)
 
 - 💬 Ask me about **Ui & Ux Design**
 
