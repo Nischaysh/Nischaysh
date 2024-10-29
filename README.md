@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **lalit.s9773@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1tzYww1pHXs9bKGvOK_ZIvHF9tTVU8gIw/edit?usp=drive_link&ouid=103870135745904860455&rtpof=true&sd=true](https://docs.google.com/document/d/1tzYww1pHXs9bKGvOK_ZIvHF9tTVU8gIw/edit?usp=drive_link&ouid=103870135745904860455&rtpof=true&sd=true)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
